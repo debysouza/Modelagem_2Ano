@@ -1,3 +1,3 @@
 # Modelagem de Sistemas 2º Ano
 
-[Padlet - Requisitos e Regras](https://padlet.com/deboramatipac/requisitos-e-regras-jrg7k5gtxa86t1nc)
+[Padlet - Requisitos e Regras - Turma B](https://padlet.com/deboramatipac/discussion-topic-goes-here-yd4fura5xbo8rfrt)
