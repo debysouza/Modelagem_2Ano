@@ -14,22 +14,22 @@
 
 ## GT's Turma A
 
-[GT 1]()
+[GT 1 - ImobFácil](https://www.canva.com/design/DAGi1T1IpzQ/KbzjJuJxXMHwp-2C5oGbSQ/edit)
 
-[GT 2]()
+[GT 2 - Bazário](https://www.canva.com/design/DAGi1XKJsak/iH6akzlQMiu1YL03ahWQcA/edit)
 
-[GT 3]()
+[GT 3 - L&L Soluções](https://www.canva.com/design/DAGi1mDMv6E/2_x36rbuEu9cA_e-cIBuLg/edit)
 
-[GT 4]()
+[GT 4 - Mistyc](https://www.canva.com/design/DAGi1pl66jI/_0AE-kAGJfWOVsV_9d-yzQ/edit)
 
-[GT 5]()
+[GT 5 - Thriller Co.](https://www.canva.com/design/DAGi1eMn9x0/ffq8DJcM3yf2s9gilXlbcQ/edit)
 
-[GT 6]()
+[GT 6 - VacBank](https://www.canva.com/design/DAGi1T2g4bQ/Jts2KvctiwUo-KcfqauHAw/edit)
 
-[GT 7]()
+[GT 7 - RotaFutura](https://www.canva.com/design/DAGi1od-hKU/4Tgli_cINg42MCb70p_-HA/edit)
 
-[GT 8]()
+[GT 8 - F5 Studios](https://www.canva.com/design/DAGi1fwWM8I/pzdyke68ABQgOf-jvfdZPg/edit)
 
-[GT 9]()
+[GT 9 - Armazém do Rubro](https://www.canva.com/design/DAGi1lgwqes/6Egxi4qAHD77RVaRIjG2vA/edit)
 
-[GT 10]()
+[GT 10 - PreciMóvel](https://www.canva.com/design/DAGi1mNjUrs/PUvj6OZArnlzL_1bvXp-YQ/edit)
