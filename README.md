@@ -12,6 +12,8 @@
 
 [MS - Técnicas de análise de Requisitos](https://docs.google.com/presentation/d/16AUoi2OlK20lHLyMumQHNGY7tR-4ii_jKCU1Rw9HnOo/edit?usp=sharing)
 
+[MS - UML](https://docs.google.com/presentation/d/1RdMPCK8WmK97-bAjCN3TRKPVpfRrg8t9/edit?usp=sharing&ouid=107928127916770937648&rtpof=true&sd=true)
+
 ## GT's Turma A
 
 
